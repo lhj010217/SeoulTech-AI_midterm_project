@@ -1,0 +1,1 @@
+# SeoulTech-AI_midterm_project
